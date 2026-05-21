@@ -5,7 +5,7 @@
 
 <div align="center">
 
-20 ♡ korean , filipino , mexican
+20 ♡ kr/fil/esp
 
 
 

@@ -1,11 +1,12 @@
 <div align="center">
 
-<img width="344" height="344" alt="adjsRVGTe8mE-JQF8pT8J8TlaNkfhN4BgnV9h5T5MIQ" src="https://github.com/user-attachments/assets/f99eb50d-695a-445e-bfea-e1da5acd424f" />
+<img width="520" height="382" alt="78f7468d2a83adef232d42c3688ffe01" src="https://github.com/user-attachments/assets/6a8d9a6e-fac1-49f5-8ad1-8211ef1908fb" />
 
 
 <div align="center">
 
 20 ♡ korean , filipino , mexican
+
 
 
 

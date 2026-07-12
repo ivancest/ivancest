@@ -16,4 +16,4 @@
 
 <div align="center">
 
-hi guys if ure here from the pt confessions ata... this wallegation was dropped weeks ago and i had permission to delete the messages, pls stop treating eden like hes still in highschool and assuming how i groomed him into making him defend me. besides eden has proof all of it was dropped. oke bye
+hi guys if ure here from the pt confessions ata... this allegation was dropped weeks ago and i had permission to delete the messages, pls stop treating eden like hes still in highschool and assuming how i groomed him into making him defend me. besides eden has proof all of it was dropped. oke bye

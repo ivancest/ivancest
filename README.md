@@ -16,4 +16,3 @@
 
 <div align="center">
 
-hi guys if ure here from the pt confessions ata... this allegation was dropped weeks ago and i had permission to delete the messages(to add onto another thing yes i did delete the other messages but i clearly didnt even do anything wrong. i have never groomed nor did anything sexual with any of my friends who are minors?? stop harassing me), pls stop treating eden like hes still in highschool and assuming how i groomed him into making him defend me. besides eden has proof all of it was dropped. and besides that i do have friends who range around 15-17 who are actually treated liek friends. oke bye

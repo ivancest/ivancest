@@ -16,4 +16,9 @@
 
 <div align="center">
 
-you guys genuinely believe anything its killing me
+hi guys unfortunately i have to address this situation again since its been brought up publicly this time
+<div align="center">
+
+ive already cleared my side multiple times so this is the **last** time i'll address this again. i understand that it raises concerns to people, but **i** ask that srs allegations should not be spread without full context. some information thats currently being shared is based on interpretations and incomplete context ^_^' and i really disagree how these have been characterized.
+<div align="center">
+if youre someone who knows me personally(or a friend of mine in general) and have questions or concerns. id much rather u ask me directly than form an opinion from just public posts alone!! im willing to have private convos with friends who genuinely wanna understand. i wont be having arguments after this

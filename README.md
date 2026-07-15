@@ -16,7 +16,7 @@
 
 <div align="center">
 
-hi guys unfortunately i have to address this situation again since its been brought up publicly this time
+hi guys unfortunately i have to address this situation again since its been brought up publicly this time (in the confessions ata)
 <div align="center">
 
 ive already cleared my side multiple times so this is the **last** time i'll address this again. i understand that it raises concerns to people, but **i** ask that srs allegations should not be spread without full context. some information thats currently being shared is based on interpretations and incomplete context ^_^' and i really disagree how these have been characterized.

@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="520" height="382" alt="78f7468d2a83adef232d42c3688ffe01" src="https://github.com/user-attachments/assets/6a8d9a6e-fac1-49f5-8ad1-8211ef1908fb" />
+<img width="290" height="410" alt="78f7468d2a83adef232d42c3688ffe01" src="https://github.com/user-attachments/assets/011955f5-0589-4640-be02-d46c90162942" />
 
 
 <div align="center">
@@ -22,3 +22,4 @@ hi guys unfortunately i have to address this situation again since its been brou
 ive already cleared my side multiple times so this is the **last** time i'll address this again. i understand that it raises concerns to people, but **i** ask that srs allegations should not be spread without full context. some information thats currently being shared is based on interpretations and incomplete context ^_^' and i really disagree how these have been characterized.
 <div align="center">
 if youre someone who knows me personally(or a friend of mine in general) and have questions or concerns. id much rather u ask me directly than form an opinion from just public posts alone!! im willing to have private convos with friends who genuinely wanna understand. i wont be having arguments after this
+

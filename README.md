@@ -2,11 +2,11 @@
 
 <div align="center">
 
-$\color{#3e131d}\textsf{hundred}$ $\color{#4f141a}\textsf{models}$ $\color{#5d1b1b}\textsf{gettin'}$ $\color{#5d1b1b}\textsf{faded}$ $\color{#721f1f}\textsf{in}$ $\color{#721f1f}\textsf{the}$ $\color{#8c1f1f}\textsf{compound}$
+$\color{#3e131d}\textsf{where are}$ $\color{#4f141a}\textsf{you now}$ $\color{#5d1b1b}\textsf{when i}$ $\color{#5d1b1b}\textsf{need}$ $\color{#721f1f}\textsf{you}$ $\color{#8c1f1f}\textsf{most?}$
 
 <div align="center">
 
-$\color{#3e131d}\textsf{tryna}$ $\color{#3e131d}\textsf{love}$ $\color{#4f141a}\textsf{me,}$ $\color{#5d1b1b}\textsf{but}$ $\color{#5d1b1b}\textsf{they}$ $\color{#721f1f}\textsf{never}$ $\color{#721f1f}\textsf{get}$ $\color{#8c1f1f}\textsf{a}$ $\color{#8c1f1f}\textsf{pulse}$ $\color{#8c1f1f}\textsf{down}$
+$\color{#3e131d}\textsf{i}$ $\color{#3e131d}\textsf{gave}$ $\color{#4f141a}\textsf{it all}$ $\color{#5d1b1b}\textsf{just to}$ $\color{#5d1b1b}\textsf{hold}$ $\color{#721f1f}\textsf{you}$ $\color{#8c1f1f}\textsf{close}$
 
 <img width="290" height="410" alt="78f7468d2a83adef232d42c3688ffe01" src="https://github.com/user-attachments/assets/2b0399e5-63e4-4de0-8ab5-668540ae9166" />
 

@@ -2,11 +2,11 @@
 
 <div align="center">
 
-$\color{#3e131d}\textsf{where are}$ $\color{#4f141a}\textsf{you now}$ $\color{#5d1b1b}\textsf{when i}$ $\color{#5d1b1b}\textsf{need}$ $\color{#721f1f}\textsf{you}$ $\color{#8c1f1f}\textsf{most?}$
+$\color{#65141b}\textsf{where are}$ $\color{#65141b}\textsf{you now}$ $\color{#82181f}\textsf{when i}$ $\color{#82181f}\textsf{need}$ $\color{#992028}\textsf{you}$ $\color{#af2c2c}\textsf{most?}$
 
 <div align="center">
 
-$\color{#3e131d}\textsf{i}$ $\color{#3e131d}\textsf{gave}$ $\color{#4f141a}\textsf{it all}$ $\color{#5d1b1b}\textsf{just to}$ $\color{#5d1b1b}\textsf{hold}$ $\color{#721f1f}\textsf{you}$ $\color{#8c1f1f}\textsf{close}$
+$\color{#65141b}\textsf{i}$ $\color{#65141b}\textsf{gave}$ $\color{#65141b}\textsf{it all}$ $\color{#82181f}\textsf{just to}$ $\color{#82181f}\textsf{hold}$ $\color{#992028}\textsf{you}$ $\color{#af2c2c}\textsf{close}$
 
 <img width="903" height="400" alt="tumblr_c2eabb54b19ffeec8ac338589f68d468_1d52e650_2048" src="https://github.com/user-attachments/assets/3aae608c-ccdc-4f54-9282-f0a9cdf137a9" />
 

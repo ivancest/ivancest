@@ -1,5 +1,6 @@
 
 
+
 <div align="center">
 
 $\color{#65141b}\textsf{where are}$ $\color{#65141b}\textsf{you now}$ $\color{#82181f}\textsf{when i}$ $\color{#82181f}\textsf{need}$ $\color{#992028}\textsf{you}$ $\color{#af2c2c}\textsf{most?}$
@@ -8,7 +9,7 @@ $\color{#65141b}\textsf{where are}$ $\color{#65141b}\textsf{you now}$ $\color{#8
 
 $\color{#65141b}\textsf{i}$ $\color{#65141b}\textsf{gave}$ $\color{#65141b}\textsf{it all}$ $\color{#82181f}\textsf{just to}$ $\color{#82181f}\textsf{hold}$ $\color{#992028}\textsf{you}$ $\color{#af2c2c}\textsf{close}$
 
-<img width="653" height="300" alt="tumblr_c2eabb54b19ffeec8ac338589f68d468_1d52e650_2048" src="https://github.com/user-attachments/assets/533193f7-072d-4fbe-b2eb-185909e3a7f3" />
+<img width="653" height="300" alt="tumblr_c2eabb54b19ffeec8ac338589f68d468_1d52e650_2048" src="https://github.com/user-attachments/assets/db758926-645c-494a-98f8-609ed3d5e5bb" />
 
 
 <div align="center">

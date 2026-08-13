@@ -9,7 +9,7 @@ $\color{#65141b}\textsf{where are}$ $\color{#65141b}\textsf{you now}$ $\color{#8
 
 $\color{#65141b}\textsf{i}$ $\color{#65141b}\textsf{gave}$ $\color{#65141b}\textsf{it all}$ $\color{#82181f}\textsf{just to}$ $\color{#82181f}\textsf{hold}$ $\color{#992028}\textsf{you}$ $\color{#af2c2c}\textsf{close}$
 
-<img width="653" height="220" alt="tumblr_c2eabb54b19ffeec8ac338589f68d468_1d52e650_2048" src="https://github.com/user-attachments/assets/4821adc0-36f8-44e2-af89-8207081848e6" />
+<img width="653" height="220" alt="tumblr_c2eabb54b19ffeec8ac338589f68d468_1d52e650_2048" src="https://github.com/user-attachments/assets/bce0bc40-b523-4b95-af13-4f950eb7001d" />
 
 
 <div align="center">
@@ -27,7 +27,7 @@ $\color{#65141b}\textsf{i}$ $\color{#65141b}\textsf{gave}$ $\color{#65141b}\text
 
 <div align="center">
 
-<img width="653" height="220" alt="tumblr_2e044b292a8bbfa4a042ad268b4a2ecc_edd24219_2048" src="https://github.com/user-attachments/assets/a9748a5e-d9b0-4a5c-9260-3333ad869f9d" />
+<img width="653" height="220" alt="tumblr_2e044b292a8bbfa4a042ad268b4a2ecc_edd24219_2048" src="https://github.com/user-attachments/assets/65d629f5-734b-46fa-bb14-83f4da94522c" />
 
 <div align="center">
 

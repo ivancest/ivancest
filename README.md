@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<img width="340" height="285" alt="tumblr_b37821f490660e71c9d528cd7596661c_41f47c50_2048" src="https://github.com/user-attachments/assets/2ab12862-ab9a-4411-88db-009539b6785c" />
+im redoing everything
 
 
 <div align="center">

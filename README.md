@@ -7,6 +7,8 @@
 
 <div align="center">
 
+- - -
+
 20 ♡ kr/fil/esp <img width="24" height="24" alt="207-2073015_xo-logo-transparent-white-xo-the-weeknd-logo-removebg-preview" src="https://github.com/user-attachments/assets/98d553e1-ee44-4bff-be81-f4f0fcb5e8c8" /> $\color{#31d68a}\textsf{キッスランド}$
 
 
@@ -17,5 +19,9 @@
 </p>
 
 <div align="center">
+
+[ata](https://yangilwoo.atabook.org)ㅤxㅤ[strawp](https://afterrhours.straw.page)
+
+- - -
 
 
